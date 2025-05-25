@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **muhiddinovnurmuhammadxon1@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGoG6KxCFo/hdlFEsCGodAYkPDCO5VNjA/edit?utm_content=DAGoG6KxCFo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGoG6KxCFo/hdlFEsCGodAYkPDCO5VNjA/edit?utm_content=DAGoG6KxCFo&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences [View Resume](https://www.canva.com/design/DAGoG6KxCFo/hdlFEsCGodAYkPDCO5VNjA/view)
 
 <h3 align="left">Connect with me:</h3>
 <div align="left">
